@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @2adHellcat
+- 👀 I’m interested in Rockets, tanks, etc
+- 🌱 I’m currently learning Standard Minecraft Coding and Rocket Science
